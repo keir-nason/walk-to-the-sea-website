@@ -10,3 +10,6 @@ Paragraph text
 
 More paragraph text
 
+[text of link](https://www.link.com)
+
+![text of image]()
