@@ -4,8 +4,6 @@ title: A History of Resistance: Boston and The First Pride Parades
 author: Keir Nason
 ---
 
-# Markdown header 1
-
 The Old State House has been witness to many protests and acts of resistance since its construction. March of 2020 was the 250th anniversary of the Boston Massacre of 1770, where British soldiers opened fire on a crowd of protestors. Five men were killed, and the resulting backlash helped lead to the American Revolution. June of that same year saw another anniversary pass by, commemorating an act of protest that led to a tradition of activism persisting to this day; the 50th anniversary of Boston’s first Pride demonstration, which passed right by the Old State House. Though the COVID pandemic left little time to celebrate at the time, the anniversary of a landmark moment in LGBT history deserves still deserves time in the sun.  
 
 # Boston and Stonewall
