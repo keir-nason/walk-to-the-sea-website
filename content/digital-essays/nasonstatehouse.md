@@ -16,12 +16,19 @@ While this was not quite the Pride March one might expect today, Christopher Str
 
 # The First Pride March
 
+![image](https://d1y502jg6fpugt.cloudfront.net/1461/archive/fullsize/e0aa02ddaa65185b6cab9413e17ceea0.jpg?Expires=1772064000&Signature=JK78nEQJ5-WrT68Qg5glYqkUy-rp-IObyfbzC8PDIIlIlvKLjqcP-GJkvAgPhvBEpjPZFAzuwfIa9gcVCAGmC9xPgLHQIfAh-wPvB0um%7EDveVzcR9K%7EpO0KHPcN%7EKesWZzW6m6MW0nQpjx4KeCV4WJimqAAaT%7EI51%7E-hGb-cqu4Ag%7Epph3uu2bmdGD3cwnlOHImlcd%7EWUhzCOlzdWSvg4UCr5iHo8kTI-SlKpcYvVx63L7zok6HyY-eklXRYJGj4e16oGUKJBsbgTVmj4fqcVFxRsgi78XY8XDaXx7g32wyNh-Pg2nSD7kdUtyZ99IQUdla3n6bDeyc3IFfm%7EkKNPQ__&Key-Pair-Id=K6UGZS9ZTDSZM)
+*Attendees of Boston's first Pride March, June 26th of 1971. Image via Queer History Boston.*
+
 The following year saw the first officially dubbed Pride March in Boston. 300 people marched across the city, on a pre-planned path taking them from drag bars to cathedrals and the seat of the state government. The march was organized, intended to push for political goals and show that Boston’s LGBT community were united in working for them. At each location, the group would stop and read from a list of demands. Conditions for lesbian patrons at Jacque's Cabaret were to be improved, the police were to stop harassing gay men, and ordinances banning same-sex dancing were to be repealed. The parade ended with a closet-smashing ceremony, demonstrating a refusal to go back into hiding. 
 
 
 Future Boston Pride Marches would have shifting political goals and marching paths, but would always grow larger and prouder year after year. In 1975 the Boston Globe reported up to 8,000 marchers in that year’s Pride Parade; in 1986, they reported more than triple that number. The movement grew both in Boston and in the country at large. Dallas and Milwaukee hosted their first Pride Marches in 1971, with cities across the world joining them.
 
-![image](C:\Users\keirn\Downloads\PrideMACT1983.jpg)
+![image](https://repository.library.northeastern.edu/downloads/neu:m0424g52n?datastream_id=thumbnail_5)
+
+*MACT was the Boston chapter of the first interracial gay organization on the East Coast. Founded in 1981, their goal was to foster racial equality across the LGBT community, and they were frequent sights at Boston Pride Marches.
+Photo from NEU Library.*
+
 
 # Pride In The Present
 
@@ -29,5 +36,6 @@ As Boston's Pride events grew larger and larger, weathering the AIDs epidemic of
 
 Today, Massachusetts has the second highest percentage of LGBT people (relative to population) of the United States, and Boston’s yearly Pride celebration is the third largest in the country. Boston may not have invented Pride, but city’s network of activists and organizers - much like those men and women with whom the first Pride demonstration share an anniversary - worked to create a world that enriched them with the rights they sorely lacked. 
 
+![image](https://repository.library.northeastern.edu/downloads/neu:m0447m31h?datastream_id=thumbnail_4)
 
-Future Boston Pride Marches would have shifting political goals and marching paths, but would always grow larger and prouder year after year. In 1975 the Boston Globe reported up to 8,000 marchers in that year’s Pride Parade; in 1986, they reported more than triple that number. The movement grew both in Boston and in the country at large. Dallas and Milwaukee hosted their first Pride Marches in 1971, with cities across the world joining them.
+*Boston Globe photograph by David L. Ryan on the 20th anniversary of Gay Pride Day (June 6th, 1990). Photo from NEU Library.*
