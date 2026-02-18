@@ -15,3 +15,6 @@ On June 28th of 1969, the LGBT community of New York City staged a series of pro
 Organizers in Boston chose June of the following year to demonstrate, in honor of Stonewall. A group of participants across Boston’s LGBT organizations marched from Cambridge Common to Boston Common in what they called Christopher Street Liberation, after the street on which Stonewall was located. This demonstration was incredibly small, with the 50 or so marchers facing a very real threat of police intervention, but the spark set at Stonewall had found tinder.
 
 While this was not quite the Pride March one might expect today, Christopher Street Liberation helped blaze the trail for future events. Chicago, Los Angeles and San Francisco would also host events that same year, and the organizers of 1970’s Christopher Street event would continue to plan marches and demonstrations in the area. In one short year, the LGBT community had taken great strides in building an activism network. 
+
+# The First Pride March
+
