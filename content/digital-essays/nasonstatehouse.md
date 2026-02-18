@@ -16,3 +16,9 @@ While this was not quite the Pride March one might expect today, Christopher Str
 
 # The First Pride March
 
+The following year saw the first officially dubbed Pride March in Boston. 300 people marched across the city, on a pre-planned path taking them from drag bars to cathedrals and the seat of the state government. The march was organized, intended to push for political goals and show that Boston’s LGBT community were united in working for them. At each location, the group would stop and read from a list of demands. Conditions for lesbian patrons at Jacque's Cabaret were to be improved, the police were to stop harassing gay men, and ordinances banning same-sex dancing were to be repealed. The parade ended with a closet-smashing ceremony, demonstrating a refusal to go back into hiding. 
+
+
+
+
+Future Boston Pride Marches would have shifting political goals and marching paths, but would always grow larger and prouder year after year. In 1975 the Boston Globe reported up to 8,000 marchers in that year’s Pride Parade; in 1986, they reported more than triple that number. The movement grew both in Boston and in the country at large. Dallas and Milwaukee hosted their first Pride Marches in 1971, with cities across the world joining them.
