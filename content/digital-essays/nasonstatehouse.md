@@ -1,6 +1,6 @@
 ---
 location: old-state-house
-title: A History of Resistance Boston and The First Pride Parades
+title: A History of Resistance - Boston and The First Pride Parades
 author: Keir Nason
 ---
 
